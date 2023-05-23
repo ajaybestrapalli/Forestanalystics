@@ -1,1 +1,1 @@
-
+![](C:\Users\ajayb\Figure_1.png)
